@@ -8,5 +8,6 @@
 
 ## SOCIAL
 
-[Instagram](https://www.instagram.com/runejensencom) 
+[Instagram](https://www.instagram.com/runejensencom)
+
 [Linkedin](https://www.linkedin.com/in/runejensencom)
